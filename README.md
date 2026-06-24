@@ -2,5 +2,5 @@
  vVnjvb  v  jj
   kfyguivhn vm vhvgiosj
     vkhijbhcrgcjm
-     jgdcy,d,;cpb ckbnjsftfcg S. hvsgic
+     jgdcy,d,;cpb ckbnjsftfcg S. hvsg
      v vjjig0pl
