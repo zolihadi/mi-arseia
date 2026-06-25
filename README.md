@@ -1,6 +1,6 @@
 # mi-arsei0 bvujyudi
  vVnjvb  v
-  kfyguivhn vm vhvgiosj
+  kfyguivhn vm vhvgio
     vkhijbhcr
      jgdcy,d,;cpb ckjtfcg Sh
  
