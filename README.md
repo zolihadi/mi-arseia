@@ -1,1 +1,1 @@
-# mi-arsei0 bvujyud
+# mi-arsei0 bvujyu
